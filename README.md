@@ -1,1 +1,0 @@
-# VTPL_AR_test0ykya0s
